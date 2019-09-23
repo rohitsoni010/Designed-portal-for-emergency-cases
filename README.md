@@ -10,7 +10,7 @@ To establish tertiary care, referral and state-of-the-art facilities for di-
 abetes, metabolic disorders, obesity and other endocrine disorders.
 To manage and treat above disorders with appropriate and evidence
 based knowledge, with particular help to underprivileged people.
-Higher education support for academic excellence and prociency.
+Higher education support for academic excellence and proficiency.
 Recognition of talent and excellent opportunities to maximize your po-
 tential.
 World class Infrastructure and state-of-the-art medical technology to
